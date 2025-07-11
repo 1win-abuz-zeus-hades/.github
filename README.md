@@ -41,7 +41,7 @@
 
 Как только мы попадем на страницу со слотами - переходим в поиск:
 
-https://i.postimg.cc/fTJDb0z5/2d0855cf04482a70830c8.jpg
+[![1WIN](https://i.postimg.cc/fTJDb0z5/2d0855cf04482a70830c8.jpg)](https://1wilib.life/casino/list?open=register&p=trh6)
 
 
 После пишем в строку поиска «Zeus vs Hades» и переходим по данному слоту:
