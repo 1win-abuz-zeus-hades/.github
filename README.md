@@ -17,14 +17,14 @@
 Первостепенно нам необходимо [зарегистрировать новый аккаунт (тыкни)](https://1wilib.life/casino/list?open=register&p=trh6), как всем известно — новые аккаунты чаще всего получают большие шансы на выигрыш, поэтому тут без вопросов.
 
 
-[![1WIN](https://i.postimg.cc/gkPHz3Hb/c463d15cb22a93e6e01a9-1.png](https://1wilib.life/casino/list?open=register&p=trh6)
+[![1WIN](https://i.postimg.cc/gkPHz3Hb/c463d15cb22a93e6e01a9-1.png)](https://1wilib.life/casino/list?open=register&p=trh6)
 
 
 Далее, нам необходимо ввести промокод для +500% к пополнению, промокод «FREEBET321». После ввода промокода регистрация завершена.
 
 
 
-[![1WIN](https://i.postimg.cc/QdvtDJcp/80e04cf9038dccaeb289f.jpg](https://1wilib.life/casino/list?open=register&p=trh6)
+[![1WIN](https://i.postimg.cc/QdvtDJcp/80e04cf9038dccaeb289f.jpg)](https://1wilib.life/casino/list?open=register&p=trh6)
 
 											Система бонусов
 
@@ -35,7 +35,8 @@
 	Схема.
 После регистрации нам необходимо пройти по кнопке казино:
 
-https://i.postimg.cc/bwSymS4d/e6fbf8b3e029286fcf6d6.jpg
+
+[![1WIN](https://i.postimg.cc/bwSymS4d/e6fbf8b3e029286fcf6d6.jpg)](https://1wilib.life/casino/list?open=register&p=trh6)
 							Нажать «Все»
 
 Как только мы попадем на страницу со слотами - переходим в поиск:
@@ -45,8 +46,8 @@ https://i.postimg.cc/fTJDb0z5/2d0855cf04482a70830c8.jpg
 
 После пишем в строку поиска «Zeus vs Hades» и переходим по данному слоту:
 
-https://i.postimg.cc/63MxWBFD/gj1HnWs.png
 
+[![1WIN](https://i.postimg.cc/63MxWBFD/gj1HnWs.png)](https://1wilib.life/casino/list?open=register&p=trh6)
 
 Далее самое интересное — выбираем темную сторону, далее переходим в ставку и ставим спин по 95₽ в случае если пополнение на 2000 рублей, данные суммы были проверены нами на практике, на новый аккаунт нам выдавало от 50.000 до 300.000 за бонуску!
 
